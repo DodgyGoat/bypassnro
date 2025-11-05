@@ -1,4 +1,4 @@
-# DodgyGoats's Bypass NRO on STEROIDS!?!?!?
+# DodgyGoat's Bypass NRO on STEROIDS!?!?!?
 
 From the OOBE Screen press Shift + F10
 
